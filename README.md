@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mcnmi03, you can call me Michie
-- 👀 I’m interested in dance, workout, adn design
+- 👀 I’m interested in dance, workout, and design
 - 🌱 I’m currently learning coding and UI/UX
 - 💞️ I’m looking to collaborate on (soon)
 - 📫 How to reach me (soon)
